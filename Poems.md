@@ -7,3 +7,29 @@ Darkest before dawn, the sourest lemons life has to offer. This pain is not fore
 Those of you who know me know that I am big on control. Its taken me 28 years to accept the fact that there is absolutely no point in trying to control the future because no one knows where we will be, not even a year from now. But, what we can control are the people we choose. Choosing our people is the closet we come to controlling our destiny because while everything else might change, If you choose right then everything will stay the same; whether thats a year from now or ten years from now. 
 
 Painting of Life: Life is full of colour and we each get to come along and add our colour to the painting and even though it's not very big you still have to figure that it goes on forever because that's kind of like life. I mean is it not crazy if you think about it that 100 years ago some guy that I've never met came to this country with a suit case; He has a son, who has a son who has me. So at first I was thinking that maybe my grandfather appears in the top left of the painting and maybe my father appears on the top right. And then i started to think that what if we are all in the painting everywhere; What if we are in the painting before we are even born. What if we are in the painting even after we die. And these colours that we keep adding; what if they just keep being added on top of one another until eventually we are not even different colours anymore we are just one thing, One painting. There is no dieing; there is no you, me or them. Its just Us. And this sloppy, wild, colourful, magical thing that has no beginning and has no end is Us. 
+
+## UNYIELDING BLOOM
+Beneath the weight of an iron sky,
+Where stone smothers tender ground,
+A tiny seed dares to defy,
+Its strength in silence found.
+
+The wind snarls fierce, the rain strikes cold,
+Dreams quiver in their skin,
+Yet deeper still the roots take hold—
+True growth begins within.
+
+Each scar etched deep on weathered bark,
+Each tear the storm has spun,
+Are medals of battles fought in the dark,
+Proof of the rising sun.
+
+Resilience is not the shield we wear,
+Nor the absence of fear’s sting.
+It’s the soft, bold whisper: “I am still here,”
+And the courage that makes it sing.
+
+Let thunder roar, let shadows creep,
+Let doubt cast its longest night.
+The soul that bends but never breaks
+Will bloom toward the light.
