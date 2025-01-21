@@ -10,6 +10,7 @@ Painting of Life: Life is full of colour and we each get to come along and add o
 
 ## UNYIELDING BLOOM
 Beneath the weight of an iron sky,
+
 Where stone smothers tender ground,
 A tiny seed dares to defy,
 Its strength in silence found.
