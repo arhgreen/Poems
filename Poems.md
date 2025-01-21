@@ -43,7 +43,7 @@ Stitching wisdom into your heart.
 For the tragedies that tear us apart,  
 Are the very forces that forge our heart.  
 And when the night feels endless and vast,  
-Remember: the stars are born from a fiery past.**
+Remember: the stars are born from a fiery past.
 
 ## UNYIELDING BLOOM
 Beneath the weight of an iron sky,  
