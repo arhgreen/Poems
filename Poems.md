@@ -1,12 +1,50 @@
 # ECHOES OF A RESTLESS SOUL
 ### Poems by Aaron H. Green
 ## THE TRAGEDIES THAT DEFINE OUR LIVES 
-It's the tragedies that define our lives; They are the fence-poles on which the rest of our lives hang. I always think about that; Like, our lives just hang in there, between these really sad fence-poles. You were born out of tragedy, multiple tragedies. All that loss, all that sadness and look at what you hang on your fence-poles. Look right infront you, look at what you did with all that. Do you see it? You are a brilliant resilient man. The world is a brilliant resilient place. We fight on!
-Darkest before dawn, the sourest lemons life has to offer. This pain is not forever, this moment in time is not forever. Nothing is forever, Except us. We fight on!
+We are carved by shadows, etched by pain,  
+Each heartbreak a chisel, each loss a stain.  
+Life’s tragedies fall like relentless rain,    
+Yet from the wreckage, we rise again.  
 
-Those of you who know me know that I am big on control. Its taken me 28 years to accept the fact that there is absolutely no point in trying to control the future because no one knows where we will be, not even a year from now. But, what we can control are the people we choose. Choosing our people is the closet we come to controlling our destiny because while everything else might change, If you choose right then everything will stay the same; whether thats a year from now or ten years from now. 
+A mother weeps where silence grows,  
+For the laughter her empty home once knows.  
+Her arms are hollow, yet they hold  
+The ghost of love that time won’t fold.  
 
-Painting of Life: Life is full of colour and we each get to come along and add our colour to the painting and even though it's not very big you still have to figure that it goes on forever because that's kind of like life. I mean is it not crazy if you think about it that 100 years ago some guy that I've never met came to this country with a suit case; He has a son, who has a son who has me. So at first I was thinking that maybe my grandfather appears in the top left of the painting and maybe my father appears on the top right. And then i started to think that what if we are all in the painting everywhere; What if we are in the painting before we are even born. What if we are in the painting even after we die. And these colours that we keep adding; what if they just keep being added on top of one another until eventually we are not even different colours anymore we are just one thing, One painting. There is no dieing; there is no you, me or them. Its just Us. And this sloppy, wild, colourful, magical thing that has no beginning and has no end is Us. 
+A soldier walks with a shattered gait,  
+Haunted by faces that whisper his fate.  
+The medals gleam, but they cannot hide  
+The war still raging deep inside.  
+
+The lover abandoned, the child betrayed,  
+The dreams we buried, the debts we’ve paid—  
+Each sorrow we carry, heavy and real,  
+Becomes the compass that shapes how we heal.  
+
+We are not untouched; we are not the same,  
+We wear our grief like cloaks of flame.  
+But fire refines, it burns away fear,  
+And leaves behind what’s pure, sincere.  
+
+Every scar is a map, every tear a line,  
+Charting the journey through the divine.  
+For tragedy is the cruelest muse,  
+Yet it grants us the truth we cannot refuse.  
+
+The broken heart loves with fiercer fire,  
+The grieving soul climbs higher and higher.  
+The shattered dreamers rebuild their skies,  
+Wiping the ashes from their eyes.  
+
+So do not fear the pain you face,    
+The empty chair, the unfilled space.    
+These losses are threads in life’s vast art,  
+Stitching wisdom into your heart.  
+
+For the tragedies that tear us apart,  
+Are the very forces that forge our heart.  
+And when the night feels endless and vast,  
+Remember: the stars are born from a fiery past.  
 
 ## UNYIELDING BLOOM
 Beneath the weight of an iron sky,  
