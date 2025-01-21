@@ -9,8 +9,7 @@ Those of you who know me know that I am big on control. Its taken me 28 years to
 Painting of Life: Life is full of colour and we each get to come along and add our colour to the painting and even though it's not very big you still have to figure that it goes on forever because that's kind of like life. I mean is it not crazy if you think about it that 100 years ago some guy that I've never met came to this country with a suit case; He has a son, who has a son who has me. So at first I was thinking that maybe my grandfather appears in the top left of the painting and maybe my father appears on the top right. And then i started to think that what if we are all in the painting everywhere; What if we are in the painting before we are even born. What if we are in the painting even after we die. And these colours that we keep adding; what if they just keep being added on top of one another until eventually we are not even different colours anymore we are just one thing, One painting. There is no dieing; there is no you, me or them. Its just Us. And this sloppy, wild, colourful, magical thing that has no beginning and has no end is Us. 
 
 ## UNYIELDING BLOOM
-Beneath the weight of an iron sky,
-
+Beneath the weight of an iron sky,  
 Where stone smothers tender ground,
 A tiny seed dares to defy,
 Its strength in silence found.
