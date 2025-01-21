@@ -106,3 +106,49 @@ So let the silent sun unfold,
 Its quiet fire both soft and bold.  
 For in its glow, new paths are spun—  
 Life begins with the silent sun.  
+
+## Love
+I knew you before the first hello,  
+In dreams that lingered where I dared not go.  
+Your name was a melody I couldn’t sing,  
+Yet my soul hummed it—an unspoken thing.  
+
+You are not just a person, but a place,  
+A hidden map in the lines of your face.  
+Your laughter, a compass pointing true north,  
+Guiding me home, drawing me forth.  
+
+Love with you is not soft or tame,  
+It’s the spark that sets the forest aflame.  
+It’s chaos wrapped in a tender disguise,  
+A quiet storm behind gentle eyes.  
+
+When we touch, time bends and breaks,  
+Eternity born in the space it takes  
+For your fingertips to trace my skin,  
+A thousand lifetimes all within.  
+
+You are the alchemist of my heart,  
+Turning the fractured into art.  
+Every scar, each broken seam,  
+You’ve spun into gold, a radiant gleam.  
+
+Our love is not perfect, but raw and real,  
+It’s the wound that aches and dares to heal.  
+It’s arguing fiercely, then laughing in tears,  
+It’s hope that endures through the weight of years.  
+
+You’ve taught me love isn’t only a fire,  
+But also the embers that never tire.  
+A quiet warmth in the coldest night,  
+The whispered promise: We’ll be all right.  
+
+In your arms, I am vast and whole,  
+A constellation reborn in your soul.  
+And when the world fades, as all worlds do,  
+I’ll still be stardust—circling you.  
+
+So here we stand, on the edge of the unknown,  
+Two travelers claiming love as our own.  
+Not flawless, not finished, but endlessly true—  
+Alchemy made of me and you.  
