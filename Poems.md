@@ -1,5 +1,4 @@
-# ECHOES OF A RESTLESS SOUL
-### Poems by Aaron H. Green
+# ECHOES OF A RESTLESS SOUL— Poems by Aaron H. Green
 ## THE TRAGEDIES THAT DEFINE OUR LIVES 
 We are carved by shadows, etched by pain,  
 Each heartbreak a chisel, each loss a stain.  
