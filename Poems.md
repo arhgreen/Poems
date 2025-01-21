@@ -1,6 +1,6 @@
 # ECHOES OF A RESTLESS SOUL— Poems by Aaron H. Green
 ## THE TRAGEDIES THAT DEFINE OUR LIVES 
-We are carved by shadows, etched by pain,  
+** We are carved by shadows, etched by pain,  
 Each heartbreak a chisel, each loss a stain.  
 Life’s tragedies fall like relentless rain,    
 Yet from the wreckage, we rise again.  
@@ -43,7 +43,7 @@ Stitching wisdom into your heart.
 For the tragedies that tear us apart,  
 Are the very forces that forge our heart.  
 And when the night feels endless and vast,  
-Remember: the stars are born from a fiery past.  
+Remember: the stars are born from a fiery past.**
 
 ## UNYIELDING BLOOM
 Beneath the weight of an iron sky,  
