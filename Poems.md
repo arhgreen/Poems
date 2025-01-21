@@ -71,7 +71,7 @@ Let doubt cast its longest night.
 The soul that bends but never breaks  
 Will bloom toward the light.  
 
-### Unfolding the Silent Sun
+### UNFOLDING THE SILENT SUN
 Beneath a sky of muted grey,  
 Where shadows stretch and whispers play,  
 The silent sun begins to rise,  
@@ -107,7 +107,7 @@ Its quiet fire both soft and bold.
 For in its glow, new paths are spun—  
 Life begins with the silent sun.  
 
-### Love
+### LOVE 
 I knew you before the first hello,  
 In dreams that lingered where I dared not go.  
 Your name was a melody I couldn’t sing,  
