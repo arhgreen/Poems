@@ -10,26 +10,26 @@ Painting of Life: Life is full of colour and we each get to come along and add o
 
 ## UNYIELDING BLOOM
 Beneath the weight of an iron sky,  
-Where stone smothers tender ground,
-A tiny seed dares to defy,
-Its strength in silence found.
+Where stone smothers tender ground,  
+A tiny seed dares to defy,  
+Its strength in silence found.  
 
-The wind snarls fierce, the rain strikes cold,
-Dreams quiver in their skin,
-Yet deeper still the roots take hold—
-True growth begins within.
+The wind snarls fierce, the rain strikes cold,  
+Dreams quiver in their skin,  
+Yet deeper still the roots take hold—  
+True growth begins within.  
 
-Each scar etched deep on weathered bark,
-Each tear the storm has spun,
-Are medals of battles fought in the dark,
-Proof of the rising sun.
+Each scar etched deep on weathered bark,  
+Each tear the storm has spun,  
+Are medals of battles fought in the dark,  
+Proof of the rising sun.  
 
-Resilience is not the shield we wear,
-Nor the absence of fear’s sting.
-It’s the soft, bold whisper: “I am still here,”
-And the courage that makes it sing.
+Resilience is not the shield we wear,  
+Nor the absence of fear’s sting.  
+It’s the soft, bold whisper: “I am still here,”  
+And the courage that makes it sing.  
 
-Let thunder roar, let shadows creep,
-Let doubt cast its longest night.
-The soul that bends but never breaks
-Will bloom toward the light.
+Let thunder roar, let shadows creep,  
+Let doubt cast its longest night.  
+The soul that bends but never breaks  
+Will bloom toward the light.  
