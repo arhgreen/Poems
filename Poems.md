@@ -70,3 +70,39 @@ Let thunder roar, let shadows creep,
 Let doubt cast its longest night.  
 The soul that bends but never breaks  
 Will bloom toward the light.  
+
+## Unfolding the Silent Sun
+Beneath a sky of muted grey,  
+Where shadows stretch and whispers play,  
+The silent sun begins to rise,  
+A fragile glow in clouded skies.  
+
+No trumpet blares, no thunder calls,  
+No roar resounds through canyon walls.  
+It breathes in stillness, soft and slow,  
+Unveiling light the world will know.  
+
+Its rays, like hands, reach trembling wide,  
+Through tangled trees where fears reside.  
+It touches leaves with golden grace,  
+Reviving life in every space.  
+
+The silent sun does not demand,  
+Nor force its light upon the land.  
+It warms the cold, it mends the fray,  
+And coaxes night to slip away.  
+
+In quiet hearts where shadows rest,  
+Its tender light ignites the quest:  
+To heal, to hope, to rise once more,  
+To find the strength we thought no more.  
+
+For silence speaks where words have failed,  
+Its gentle beams a truth unveiled.  
+That even in the darkest place,  
+A sun will rise with patient grace.  
+
+So let the silent sun unfold,  
+Its quiet fire both soft and bold.  
+For in its glow, new paths are spun—  
+Life begins with the silent sun.  
