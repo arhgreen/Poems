@@ -154,11 +154,5 @@ Not flawless, not finished, but endlessly true—
 Alchemy made of me and you.  
 
 ### Brighter tunnel 
-Shall I compare thee to a summer's day    
-Thou art more lovely and more temperate    
-Rough winds do shake the darling buds May    
-And Summer blossoms even more with you in sight    
-Nothing brightens up my day better than your morning yawns    
-Filled with eternal sarcasm and collasal rejuvenation    
-Pride is your ever-longing desire to make yourself and I better    
+What else other than faith do we have to see forard to
 
