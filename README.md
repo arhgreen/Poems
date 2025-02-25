@@ -153,6 +153,4 @@ Two travelers claiming love as our own.
 Not flawless, not finished, but endlessly true—  
 Alchemy made of me and you.  
 
-### Brighter tunnel 
-What else other than faith do we have to see forard to
 
