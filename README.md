@@ -1,5 +1,5 @@
 ## ECHOES OF A CURIOUS SOUL— Poems by Aaron H. Green
-##### A 2025 Collection 
+#### A 2025 Collection 
 ### THE TRAGEDIES THAT DEFINE OUR LIVES 
 We are carved by shadows, etched by pain,  
 Each heartbreak a chisel, each loss a stain.  
