@@ -1,4 +1,4 @@
-## ECHOES OF A CURIOUS SOUL— Poems by Aaron H. Green
+w## ECHOES OF A CURIOUS SOUL— Poems by Aaron H. Green
 #### A 2025 Collection 
 ### THE TRAGEDIES THAT DEFINE OUR LIVES 
 We are carved by shadows, etched by pain,  
