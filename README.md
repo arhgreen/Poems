@@ -1,8 +1,8 @@
 <h1 align="center">🖋️✨ Whispers of the Soul ✨🖋️</h1>
 
 <p align="center">
-  <em>A curated collection of original poems that stir the heart, provoke the mind, and sing to the soul.</em><br>
-  <strong>by [Your Name]</strong>
+  <em>ECHOS OF A CURIOUS SOULS</em><br>
+  <strong>by Aaron H. Green</strong>
 </p>
 
 ---
