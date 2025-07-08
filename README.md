@@ -1,8 +1,7 @@
-<h1 align="center">🖋️✨ Whispers of the Soul ✨🖋️</h1>
+<h1 align="center">🖋️✨ ECHOS OF A CURIOS SOUL ✨🖋️</h1>
 
 <p align="center">
-  <em>ECHOS OF A CURIOUS SOULS</em><br>
-  <strong>by Aaron H. Green</strong>
+  <em>Poems by Aaron H. Green</em><br>
 </p>
 
 ---
