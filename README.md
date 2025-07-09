@@ -1,4 +1,4 @@
-<h1 align="center">🖋️✨ ECHOS OF A CURIOS SOUL ✨🖋️</h1>
+<h1 align="center">🖋️ ECHOS OF A CURIOS SOUL 🖋️</h1>
 
 <p align="center">
   <em>Poems by Aaron H. Green</em><br>
