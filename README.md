@@ -1,7 +1,7 @@
 <h1 align="left">🖋️ ECHOS OF A CURIOS SOUL 🖋️</h1>
 
 <p align="left">
-  <em>**Poems by Aaron H. Green**</em><br>
+  <em>Poems by Aaron H. Green</em><br>
 </p>
 
 ---
